@@ -1,4 +1,4 @@
-
+rare Script for death ball is the best death ball Script, featuring aimbot and auto-heal. Safe and powerful for all your needs.
 
 
 
